@@ -2,4 +2,4 @@
 - 👀 estou interessada em aprender 
 - 🌱 meu email de contato e kamille.cordeiro.santos@escola.pr.gov.br
 - !eu estou interessada em aprender a programar...  
-- 💞️ eu estou aprendendo a programar recentemente a linguagem do scratc 
+- 💞️ eu estou aprendendo a programar recentemente a linguagem do scratch
